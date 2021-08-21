@@ -2,6 +2,6 @@
 Just another repository
 Hi Humans 
 
-I like much the booty 
-I am perver man 
-I am poor man 
+I am student 
+L w'd like become an informatic's monster
+I love  all things about informatic 
